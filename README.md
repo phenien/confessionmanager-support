@@ -2,7 +2,7 @@
 
 If you need help or have feedback about the Confession Manager app, please contact:
 
-📧 **support@paulhenien.com**
+📧 **smassservice@gmail.com**
 
 ---
 
